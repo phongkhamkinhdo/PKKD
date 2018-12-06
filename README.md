@@ -1,0 +1,2 @@
+# PKKD
+Phòng khám đa khoa Kinh Đô Bắc Giang là cơ sở khám, chữa bệnh có chất lượng cao chuyên điều trị các bệnh về nam khoa, phụ khoa, bệnh hậu môn-trực tràng và các bệnh xã hội. Phòng khám được trang bị thiết bị hiện đại, tiên tiến được nhập khẩu nguyên kiện từ nước ngoài. Đội ngũ bác sĩ, chuyên gia trong và ngoài nước giàu kinh nghiệm, chuyên môn giỏi. Chúng tôi tin tưởng sẽ đem tới cho người bệnh chất lượng dịch vụ và các biện pháp sức khỏe tối ưu nhất!
